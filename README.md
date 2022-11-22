@@ -1,1 +1,1 @@
-# tank_war_python
+![л╧©к╢Су╫╫ьм╪](./image/tankWarSreenshot.png)
